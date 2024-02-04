@@ -1,5 +1,5 @@
 ### <h2 align="center">
-    Hɪ I ᴀᴍ Sʜᴀᴜʀʏᴀ(Lᴇᴠɪ)
+    Hɪ ɪ ᴀᴍ ʀᴀᴍ(ᴇʀᴀɴ ᴋɪ ᴄʜᴜᴛ)
 </h2>
 
 <div align="center">
@@ -7,10 +7,10 @@
 </div> 
 
 <p align="center"> 
-  <img src="https://graph.org//file/4f5f20bd65c60a569a3b3.jpg"> 
+  <img src="https://telegra.ph/file/d61d6e82f1469a3c9c10b.jpg"> 
 </p> 
 
-⋟ Tᴇʟᴇɢʀᴀᴍ Aᴄᴄᴏᴜɴᴛ :- [Lᴇᴠɪ](https://t.me/LeviAckerman1709)
+⋟ Tᴇʟᴇɢʀᴀᴍ Aᴄᴄᴏᴜɴᴛ :- [ʀᴀᴍ](https://t.me/papa_of_telegram)
 
 ⋟ Gᴍᴀɪʟ :- Shaurya17092006@gmail.com
 
